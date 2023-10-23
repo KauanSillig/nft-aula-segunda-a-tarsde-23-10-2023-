@@ -1,0 +1,1 @@
+# nft-aula-segunda-a-tarsde-23-10-2023-
